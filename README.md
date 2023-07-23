@@ -1,6 +1,6 @@
 ### Hi there 👋 I'm Rossella 
 
-I'm passinate about data. This professional change is being a great challenge.
+I'm passionate about data. This professional change is being a great challenge.
 
 ### About me
 ##### 👩‍💻 Data Analytics, Big Data Specialist
